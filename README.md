@@ -1,4 +1,4 @@
-# EVOL_privacy_policy
+# EVOL privacy policy
 Privacy Policy
 Last updated: October 04, 2024
 
